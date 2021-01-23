@@ -1,5 +1,5 @@
- Vanilla Sugar
-================
+Vanilla Sugar
+=============
 
 1. Grind 6 gram vanilla pod.
 
