@@ -1,7 +1,7 @@
 Muffin
 ======
 
-1. Blend 200 gram of flour, 100 gram of sugar, 25 gram of vanilla sugar, 25 gram of starch, and 25 gram of baking soda.
+1. Blend 200 gram of flour, 100 gram of sugar, 25 gram of vanilla sugar, 20 gram of starch, and 20 gram of baking soda.
 
 2. Mix in 100 milliliter of oil and 100 milliliter of cold water.
 
