@@ -1,8 +1,8 @@
  Vanilla Suggar
 ================
 
-1. Grind 6 gramm vanilla pod.
+1. Grind 6 gram vanilla pod.
 
-2. Grind in 1 gramm vanillin.
+2. Grind in 1 gram vanillin.
 
-3. Blend it with 100 gramm suggar.
+3. Blend it with 100 gram suggar.
