@@ -7,4 +7,4 @@ Muffin
 
 3. Split the creme into 12 muffin forms.
 
-4. Bake muffin forms with a temperatur of 200 degree Celsius for 15 minutes.
+4. Bake muffin forms with a temperature of 200 degree Celsius for 15 minutes.
