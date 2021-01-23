@@ -6,7 +6,7 @@
 
 4. Mix in 40 gramm vanilla sugar.
 
-5. Heat 350 milliliter milk in a boiler up to 100 °C.
+5. Heat 350 milliliter milk in a boiler up to 110 °C.
 
 6. Mix in the bowl content into the boiler.
 
