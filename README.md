@@ -1,1 +1,4 @@
-# recipes
+Recipes
+=======
+
+Recipe notes for myself.
