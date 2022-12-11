@@ -11,5 +11,5 @@ Cookies 1887
 
 5. Classic decoration is egg yolk and granulated sugar on top.
 
-6. Bake the slices with a temperature of 175 degree Celsius for 8 minutes.  
-   Or airfry the slices with a temperature of 160 degree Celsius for 7 minutes.
+6. Bake the slices with a temperature of 180 degree Celsius for 8 minutes.  
+   Or airfry the slices with a temperature of 160 degree Celsius for 8 minutes.
