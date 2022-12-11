@@ -1,5 +1,5 @@
-Cookies 1887
-============
+Biscuits 1887
+=============
 
 1. Blend 190 gram of butter with 12 gram of vanilla sugar to a butter cream.
 
