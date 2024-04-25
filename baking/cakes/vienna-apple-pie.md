@@ -29,15 +29,17 @@ Vienna Apple Pie
 
 14. Press the apple slices into the pudding and doug.
 
-15. Mix 70 gram of sugar with a soup spoon (6 gram) of cinnamon.
+15. Distribute the soaked rosins over the apple slices.
 
-16. Distribute the mix over the apple slices.
+16. Mix 70 gram of sugar with a soup spoon (6 gram) of cinnamon.
 
-17. Let the pie grow in peace for 50 minutes.
+17. Distribute the mix over the apple slices.
 
-18. Bake the pie with a temperature of 200 degree Celsius for 18 minutes.
+18. Let the pie grow in peace for 50 minutes.
 
-19. Let the pie cool down.
+19. Bake the pie with a temperature of 200 degree Celsius for 18 minutes.
+
+20. Let the pie cool down.
 
 
 
