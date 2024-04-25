@@ -43,4 +43,4 @@ Vienna Apple Pie
 
 
 
-[^1]: ../../cooking/desserts/continental-pudding.md
+[^1]: [../../cooking/desserts/continental-pudding.md](../../cooking/desserts/continental-pudding.md)
