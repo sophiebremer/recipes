@@ -37,7 +37,7 @@ Vienna Apple Pie
 
 18. Let the pie grow in peace for 50 minutes.
 
-19. Bake the pie with a temperature of 200 degree Celsius for 18 minutes.
+19. Bake the pie with a temperature of 200 degree Celsius for 35 minutes.
 
 20. Let the pie cool down.
 
