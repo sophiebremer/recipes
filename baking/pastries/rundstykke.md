@@ -21,6 +21,6 @@ Rundstykke
 
 10. Cover the doug chunks on the baking plate and let them grow in peace for 30 minutes.
 
-11. Bake the doug chunks with a temperature of 200 degree Celsius for 20 minutes.
+11. Bake the doug chunks with a temperature of 220 degree Celsius for 20 minutes.
 
 12. Let it cool down for at least 3 hours.
