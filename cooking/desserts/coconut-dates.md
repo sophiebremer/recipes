@@ -13,7 +13,7 @@ Coconut Dates
 
 6. Mix in 75 gram of oats.
 
-7. Mix 30 gram of chocolate powder.
+7. Mix in 30 gram of chocolate powder.
 
 8. Let the dough rest in a bowl for 30 minutes.
 
