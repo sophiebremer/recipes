@@ -1,7 +1,7 @@
 Rundstykke
 ==========
 
-1. Mix 25 gram of yeast (~6 gram dry yeast), 10 gram of sugar, 500 milliliter warm water (~37.5˚C) in a bowl.
+1. Mix 20 gram of sugar, 500 milliliter warm water (~37.5˚C), 25 gram of yeast (~6 gram dry yeast) in a bowl.
 
 2. Let this be in peace for 5 minutes.
 
@@ -15,12 +15,12 @@ Rundstykke
 
 7. Blend 10 gram of salt into the bowl.
 
-8. Cover the bowl and let the doug grow in peace for 50 minutes.
+8. Cover the bowl and let the doug grow in peace for 60 minutes.
 
 9. Cover your hands in flour and place small round doug chunks on a baking plate.
 
 10. Cover the doug chunks on the baking plate and let them grow in peace for 30 minutes.
 
-11. Bake the doug chunks with a temperature of 220 degree Celsius for 30 minutes.
+11. Bake the doug chunks with a temperature of 225 degree Celsius for 30-40 minutes.
 
-12. Let it cool down for at least 3 hours.
+12. Let it cool down for at least 2 hours.
