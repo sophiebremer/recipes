@@ -11,7 +11,7 @@ Rosinbolle
 
 5. Blend until the doug has a consistent surface.
 
-6. Blend 75 gram of soft butter (or 60 milliliter oil) into the bowl.
+6. Blend 75 gram of soft butter (or 50 milliliter oil) into the bowl.
 
 7. Blend until the doug has a smooth surface.
 
