@@ -7,7 +7,7 @@ Rosinbolle
 
 3. Let this be in peace for 5 minutes.
 
-4. Blend 350 gram of flour into the bowl.
+4. Blend 375 gram of flour into the bowl.
 
 5. Blend until the doug has a consistent surface.
 
